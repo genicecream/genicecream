@@ -1,4 +1,5 @@
-- hi im genice! (@genicecream) i draw and make things for fun and profit.
+- hi im genice! (@genicecream)
+- she/her. design, visdev, illustration. making things for fun and profit.
 - 🌟 www.genicecream.com
 - 💌 genicecreams@gmail.com
 
